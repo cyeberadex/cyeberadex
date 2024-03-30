@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - ☠️ my whtsapp number - +94753335072
-https://telegra.ph/file/d04a0d6b8afd636adfbc8.mp4
+https://telegra.ph/file/8cea7920bcabd9863ef42.jpg
 <!---
 cyeberadex/cyeberadex is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
